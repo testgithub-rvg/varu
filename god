@@ -1,1 +1,2 @@
-my nam eis krishna
+my name is krishna
+my love is radha
